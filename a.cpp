@@ -1,2 +1,2 @@
 good a day
-q u qing ke
+q u qing a ke
